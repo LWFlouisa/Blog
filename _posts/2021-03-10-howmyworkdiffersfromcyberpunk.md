@@ -14,6 +14,8 @@ If I could summarize the main difference between Cyberpunk, and my work:
 
 -- More of a focus on "Ero-Guro" content, than tech focused narratives.
 
-There is one other difference, and that the narratives are primarily romance and not action oriented. The romance is not, however, a HEA or even most of the time HFN. Rather they're stories about breaking up. And yes, a lot of these changes are to counter the ( unfortunately ) growing "Anarcho-Communist" current that seems to be taking the literary genre off the rails, and more about people's Altruistic idealogies.
+There is one other difference, and that the narratives are primarily romance and not action oriented. The romance is not, however, a HEA or even most of the time HFN. Rather they're stories about breaking up.
+
+And yes, a lot of these changes are to counter the ( unfortunately ) growing "Anarcho-Communist" trend that seems to be taking the literary genre off the rails, and more about people's Altruistic idealogies.
 
 I honestly think ( if it hasn't already ) cancel-culture will come for Cyberpunk.
