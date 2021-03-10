@@ -16,6 +16,6 @@ If I could summarize the main difference between Cyberpunk, and my work:
 
 There is one other difference, and that the narratives are primarily romance and not action oriented. The romance is not, however, a HEA or even most of the time HFN. Rather they're stories about breaking up.
 
-And yes, a lot of these changes are to counter the ( unfortunately ) growing "Anarcho-Communist" trend that seems to be taking the literary genre off the rails, and more about people's Altruistic idealogies.
+And yes, a lot of these changes are to counter the ( unfortunately ) growing "Anarcho-Communist" trend that seems to be taking the literary genre off the rails, and more about people's Altruistic idealogies. Don't misunderstand, this fiction isn't for Gamegate or Comicsgate types either, and would definitely be considered "Leftist", just not specifically Communist / Socialist.
 
 I honestly think ( if it hasn't already ) cancel-culture will come for Cyberpunk.
